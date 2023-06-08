@@ -1,2 +1,3 @@
 # enjoy pandagow
-demo -> Nerchuko ra
+demo -> Nerchuko bro
+
